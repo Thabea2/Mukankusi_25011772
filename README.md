@@ -1,2 +1,7 @@
-# Mukankusi_25011772
-# Umurerwa_2409000556
+Mukankusi Thabea_25011772
+Umurerwa Gisele_2409000556
+uwitonze gloria 2405000445
+kagabirwa penninah_2405000427
+mugabo Aristide_2405000580
+Mandela Jackson_2409000968
+Iradukunda Eric_2409000589
